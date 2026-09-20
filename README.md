@@ -48,7 +48,7 @@ Strong Communication • Leadership • Teamwork & Collaboration • Time Manage
 
 📫 Connect with Me
 ✉️ Email: sonukgowda18@gmail.com
-📱 Phone: +91 7899816395
+
 💻 GitHub: github.com/sonuk15
 🔗 LinkedIn: linkedin.com/in/sonu-h-k-sonu10aa9b279
 
